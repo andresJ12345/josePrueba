@@ -1,3 +1,3 @@
 # josePrueba
 
-Se agrego unas cosas en OtroMas.html
+Al parecer ya le voy cogiendo el ritmo, nunca cambies. gracias...
